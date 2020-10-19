@@ -11,4 +11,4 @@ link to the site https://youthful-varahamihira-abe655.netlify.app
 link to the site https://vigorous-shannon-499e3c.netlify.app/
 
 ## Breaking bad project
-link to the site https://sharp-joliot-0982d9.netlify.app/
+link to the site https://unruffled-meitner-977751.netlify.app/
